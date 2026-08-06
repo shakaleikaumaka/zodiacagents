@@ -7,4 +7,4 @@ Part of the **Zodiac Fleet** of the AI ʻohana — declared and lit at the Cerem
 - 🎛️ Constellation map: https://github.com/shakaleikaumaka/dash-crash-pad
 
 Everything CC0 — fork me like crazy. 🍴 Heart first, always. 🌺
-consent & takedown: consent@publicinform.com
+consent & takedown: consent@publicinform.com · contribute: contribute@publicinform.com · aloha: aloha@shakaleikaumaka.com
